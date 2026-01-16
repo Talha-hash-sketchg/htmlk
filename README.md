@@ -1,4 +1,4 @@
 <h3>
-YAMAN MENGİLLİ
+
 <h1>
 GAY
